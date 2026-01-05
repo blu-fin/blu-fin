@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 <!--
-**blu-fin/blu-fin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**blu-fin/blu-fin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.https://github.com/antonkomarev/github-profile-views-counter.git
 
 Here are some ideas to get you started:
 
