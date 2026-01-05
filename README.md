@@ -1,4 +1,4 @@
-#https://github.com/antonkomarev/github-profile-views-counter.git
+#hello !! blu/she/them
 
 <!--
 **blu-fin/blu-fin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
