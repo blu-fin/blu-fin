@@ -1,10 +1,9 @@
 ![781113cfb7a3076ee4cf5d296bfc6d05](https://github.com/user-attachments/assets/9af29a66-c205-4a8a-9d49-0e229e432d22)
    kiturge / blazamy comf ship. 
-   
-        basic dni criteria 
-        under 13s dni/iwec
-        
- am extremely socially anxious.. most likely wont int first    
+       basic dni criteria
+       under 13s dni/iwec
+         ╰⁠(⁠⸝⁠⸝⁠⸝⁠´⁠꒳⁠`⁠⸝⁠⸝⁠⸝⁠)⁠╯
+  am extremely socially anxious.. most likely wont int first    
 <!--
 **blu-fin/blu-fin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
