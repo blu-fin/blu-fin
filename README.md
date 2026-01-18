@@ -1,4 +1,5 @@
-#hello !! blu/she/them
+ts still a work in progress er... really not much to say lowk heh..
+![781113cfb7a3076ee4cf5d296bfc6d05](https://github.com/user-attachments/assets/9af29a66-c205-4a8a-9d49-0e229e432d22)
 
 <!--
 **blu-fin/blu-fin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
